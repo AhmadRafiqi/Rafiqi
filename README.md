@@ -1,1 +1,1 @@
-tes
+politeknik negeri lhokseumawe
